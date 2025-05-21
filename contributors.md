@@ -3,4 +3,4 @@
 Please add your name and a fun fact below!
 
 - Dr. Kai Dupé – Instructor
-- James No - I was nicknamed Dumbo as a kid. I was nicknamed Kimchi in college.
+- James No - I don't get any sleep before an exam or any sort of upcoming event.
